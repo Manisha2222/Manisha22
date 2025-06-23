@@ -1,1 +1,2 @@
 # Research Project
+I worked with a diverse team to develop a comprehensive market entry strategy for Medihive- a leading digital healthcare provider operating through Webdoctor.ie, aiming to expand into the UK healthcare sector. I worked collaboratively with internal departments and regulatory agencies and carried out in-depth market research and analysis for MediHive's existing services while working as a Market Research and Analysis intern.
